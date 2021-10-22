@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **bedirhankaplan@outlook.com.tr, info@bedirhankaplan.tech**
 
-- 📄 Know about my experiences [bedirhankaplan.tech , https://www.linkedin.com/in/bedirhankaplan/](bedirhankaplan.tech , https://www.linkedin.com/in/bedirhankaplan/)
+- 📄 Know about my experiences [http://bedirhankaplan.tech/ , https://www.linkedin.com/in/bedirhankaplan/]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
